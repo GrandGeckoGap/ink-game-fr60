@@ -1,4 +1,4 @@
-
+Experience ink game like never before with ink game Scripts secret, the #1 Script. Includes auto-collect and god mode for unbeatable performance.
 
 
 
